@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Masterxxmits
 - 👀 I’m interested in Women and Gym
 - 🌱 I’m currently learning Games
-- 💞️ I’m looking to collaborate on a Relationship
+- 💞️ I’m looking to collaborate on Gaming
 - 📫 How to reach me, Email (idrismitsaal@gmail.com)
-- 😄 Pronouns: I'm/Yours
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Funny guy
 
 <!---
